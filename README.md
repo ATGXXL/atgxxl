@@ -2,7 +2,6 @@
 
 [VK](https://vk.com/atgxxl2)
 [TG](https://t.me/atgxxlblog)
-[SITE](https://atgxxl.pw)
 
 ## Статистика:
 
